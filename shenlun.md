@@ -53,6 +53,6 @@
 
 申论真题、范文和答题模板在入口里：
 
-> 📎 **资料入口**：https://vcneiyqpet3b.feishu.cn/docx/UYL4dYnVWoHXYUxOGC6cy6lanPf
+> 📎 **2027 公考课程**：https://pan.quark.cn/s/c110692b0232
 
 [← 回目录](README.md)

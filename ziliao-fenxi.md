@@ -54,6 +54,6 @@
 
 资料分析的公式表和真题材料在入口里：
 
-> 📎 **资料入口**：https://vcneiyqpet3b.feishu.cn/docx/UYL4dYnVWoHXYUxOGC6cy6lanPf
+> 📎 **2027 考公上岸必刷题本**：https://pan.quark.cn/s/a45da2f0c50d
 
 [← 回目录](README.md)

@@ -51,6 +51,6 @@
 
 常识的高频考点清单和时政汇总在入口里：
 
-> 📎 **资料入口**：https://vcneiyqpet3b.feishu.cn/docx/UYL4dYnVWoHXYUxOGC6cy6lanPf
+> 📎 **公考题库合集**：https://pan.quark.cn/s/8678be96c4d6
 
 [← 回目录](README.md)

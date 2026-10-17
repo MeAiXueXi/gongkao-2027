@@ -58,6 +58,6 @@
 
 面试真题、答题框架和示范作答在入口里：
 
-> 📎 **资料入口**：https://vcneiyqpet3b.feishu.cn/docx/UYL4dYnVWoHXYUxOGC6cy6lanPf
+> 📎 **面试课程**：https://pan.quark.cn/s/865395404a28
 
 [← 回目录](README.md)
