@@ -51,6 +51,6 @@
 
 常识的高频考点清单和时政汇总在入口里：
 
-> 📎 **公考题库合集**：https://pan.quark.cn/s/8678be96c4d6
+> 📎 **2027 公考资料总目录**：https://pan.quark.cn/s/169ff4628b9f
 
 [← 回目录](README.md)

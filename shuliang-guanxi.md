@@ -42,6 +42,6 @@
 
 真题按模块归档的那份在这里：
 
-> 📎 **2027 考公上岸必刷题本**：https://pan.quark.cn/s/a45da2f0c50d
+> 📎 **2027 公考资料总目录**：https://pan.quark.cn/s/169ff4628b9f
 
 [← 回目录](README.md)
